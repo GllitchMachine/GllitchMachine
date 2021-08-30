@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GllitchMachine
+- 👀 I’m interested in everythng
+- 🌱 I’m currently learning basic computer science and everything I find interesting
+- 📫 How to reach me: glitchmachine123@gmail.com
